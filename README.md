@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Bank-0
+- 👀 I’m interested in programation
+- 👍: my contact gmail is alcala.david@escola.pr.gov.br
+- 🌱 learning to recently schedule Javascrip languges and Scratch
